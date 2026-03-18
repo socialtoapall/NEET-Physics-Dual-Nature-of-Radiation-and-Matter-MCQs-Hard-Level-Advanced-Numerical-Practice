@@ -1,0 +1,2 @@
+# NEET-Physics-Dual-Nature-of-Radiation-and-Matter-MCQs-Hard-Level-Advanced-Numerical-Practice
+Challenge yourself with hard-level NEET MCQs from the Dual Nature of Radiation and Matter chapter. Practice advanced problems on the photoelectric effect, Einstein’s photoelectric equation, de Broglie wavelength, work function, stopping potential, and electron wave nature to strengthen conceptual clarity and numerical problem-solving skills. 
